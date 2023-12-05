@@ -6,3 +6,5 @@ Correo personal: cesarsotillo16@gmail.com
 Correo institucional: cesotillo.18@est.ucab.edu.ve
 
 Numero de telefono: +58 416-5881300 / +58 412-1890738
+
+Instagram: cesar_s16
